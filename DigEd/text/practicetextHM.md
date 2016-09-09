@@ -1,0 +1,5 @@
+THE
+HOUSE OF MIRTH
+I
+SELDEN paused in surprise. In the afternoon rush S of the Grand Central Station his eyes had been refreshed by the sight of Miss Lily Bart.
+It was a Monday in early September, and he was re- turning to his work from a hurried dip into‘the country; but what was Miss Bart doing in town at that season? If she had appeared to be catching a train, he might have inferred that he had come on her in the act of transi- tion between one and another of the country-houses which disputed her presence after the close of the New- port season; but her desultory air perplexed him. She stood apart from the crowd, letting it drift by her to the platform or the street, and wearing an air of irreso- .lution which might, as he surmised, be the mask of a very definite purpose. It struck him 'at once that she was waiting for some one, but he hardly knew why the idea arrested him. There was nothing new about Lily Bart, yet he could never see her Without a faint move- ment of interest: it was characteristic of her that she always roused speculation, that her simplest acts seemed the result of far-reaching 
